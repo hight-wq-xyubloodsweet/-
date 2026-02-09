@@ -1,0 +1,1 @@
+https://avatars.mds.yandex.net/i?id=87e8ffb7bce68fff7861f25214c21d63be113d9f-12422360-images-thumbs&n=13
